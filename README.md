@@ -1,5 +1,3 @@
- ‎‎    ‎ ‎‎   ‎  ‎   ‎ ‎   ‎ ‎   ‎ ‎  ‎ ‎   ‎ ‎   ‎ ‎    ‎  ‎ ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎  ‎ ‎   ‎ ‎   ‎ ‎    ‎  ‎ ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎  ‎ ‎   ‎ ‎   ‎ ‎    ‎ ‎ ‎   ‎ ‎   ‎ ‎  ‎ ‎   ‎ ‎   ‎ ‎    ‎  ‎  ‎ ‎  $\large\textcolor{#fff}{\textsf{" sex will cover your black machinery "}}$ 
- 
  <p align="right">
 
 
@@ -24,4 +22,4 @@
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 <br>
 
-‎   ‎‎‎ $\large\textcolor{#dd0404}{\textsf{" welcome to your own body company "}}$ 
+‎   ‎‎‎ $\large\textcolor{#dd0404}{\textsf{" sex will cover your black machinery "}}$ 
