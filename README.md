@@ -10,7 +10,7 @@
 
 ◞ ‎ ‎  ‎ ‎  $\textcolor{#dd0404}{\textsf{kasper‎ ‎/ kin names }}$ ‎ ‎  ╱╱ ‎ ‎  $\textcolor{#dd0404}{\textsf{he/him/any}}$
 
-  　 $\textcolor{#dd0404}{\textsf{ minor ‎ ‎  ‎ ‎ ⸝⸝ ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ 13+ }}$  　　꩜  　 $\textcolor{#dd0404}{\textsf{ adhd}}$   　〃
+  　 $\textcolor{#dd0404}{\textsf{ minor ‎ ‎  ‎ ‎ ⸝⸝ ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ 13+ }}$  　　꩜  　 $\textcolor{#dd0404}{\textsf{ adhd + semi-nonverbal}}$   　〃
 
 <br>
 
