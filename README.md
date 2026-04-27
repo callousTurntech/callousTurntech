@@ -1,6 +1,6 @@
- <p align="right">
+𝐩𝐫𝐨𝐣𝐞𝐜𝐭 𝐦𝐨𝐨𝐧 𝐟𝐚𝐧𝐬 𝐝𝐧𝐢, 𝐲𝐨𝐮 𝐰𝐢𝐥𝐥 𝐛𝐞 𝐛𝐥𝐨𝐜𝐤𝐞𝐝 𝐨𝐧 𝐬𝐢𝐠𝐡𝐭.
 
-
+<p align="right">
 
 <img src="https://files.catbox.moe/5biea8.png" width="250" align="left">
 
